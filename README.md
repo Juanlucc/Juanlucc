@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning anything
 - 💞️ I’m looking to collaborate on with the teacher 
 - 📫 How to reach me @souzabrancojuanlucca9 my instagram
-- 😄 Pronouns: she/her
+- 😄 Pronouns: him his
 - ⚡ Fun fact: i like to read
 
 <!---
